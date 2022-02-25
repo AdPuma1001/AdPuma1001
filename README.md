@@ -4,6 +4,6 @@
 - 📫 How to reach me:
 
 - 📫 Email: gabriele@astolfo.email
-- 📫 Discord AdPuma#1001
+- 📫 Discord AdPuma#0204
 
 Hope to see you there!
