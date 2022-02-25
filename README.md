@@ -4,6 +4,6 @@
 - 📫 How to reach me:
 
 - 📫 Email: gabriele@astolfo.email
-- 📫 Discord AdPuma#1001 (Friend Requests Closed avoid mass Request spam. Open ticket here for talk to me if necessary I'll just friend you.) : https://discord.gg/KRdVHyGjn9
+- 📫 Discord AdPuma#1001
 
 Hope to see you there!
