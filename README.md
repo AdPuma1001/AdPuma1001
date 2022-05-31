@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AdPuma1001
 - 👀 I’m interested in Music and Coding.
-- 🌱 I’m currently learning Java and JavaScript as basic.
+- 🌱 I’m currently learning Python and JavaScript as basic.
 
 
 **📫 How to reach me:**
